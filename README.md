@@ -1,4 +1,4 @@
-# :raising_hand_woman: Hi there!
+# 🙋🏻‍♀️Hi there!
 
 ## >>> Hello, user. Accessing Laura’s GitHub...  
 ### >>> System online. Ready to collaborate. 👾  
